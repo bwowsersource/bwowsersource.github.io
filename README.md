@@ -1,1 +1,1 @@
-# [://bwowser.com/](https://bwowser.com)
+# [://bwowser.com](https://bwowser.com)
